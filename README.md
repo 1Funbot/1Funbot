@@ -1,3 +1,1 @@
-![Image Alt](https://github.com/1Funbot/1Funbot/blob/main/Funbot_sprunki_regretful_-removebg-preview.png?raw=true)
-
- # 𝐒𝐡𝐢𝐩𝐬 𝐃𝐍𝐈 📅
+![Image Alt](https://static.wikia.nocookie.net/incredibox-sprunki-pyramixed-fanon/images/0/0c/FunbotHorror.svg/revision/latest/scale-to-width/360?cb=20250407225000)
